@@ -1,0 +1,1 @@
+# atividade-pensamento-computacional-turma-1tc-3tr-2022
